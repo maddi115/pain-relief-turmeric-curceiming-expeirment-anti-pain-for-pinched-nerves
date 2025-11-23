@@ -1,3 +1,17 @@
+-----new
+37% MCT oil
+28% Emu oil
+15% Beeswax
+10% CBD isolate
+3% MSM powder
+2% Beta-caryophyllene isolate
+0.05% Capsaicin (middle strength)
+2% Vitamin E oil
+3% (buffer/adjust)
+---
+100%
+
+
 -----
 Complete Pain Relief Recipe with Functions:
 CARRIER OILS (70% total):
