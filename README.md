@@ -1,3 +1,8 @@
+added ingredients 
+::
+Turmeric Extract (Curcuma longa): Standardized to provide 266 mg of total curcuminoids. It primarily inhibits the COX-2 enzyme to reduce inflammation.
+Frankincense Extract (Boswellia serrata): Standardized to provide 10 mg of AKBA (Acetyl-11-keto-β-boswellic acid). This inhibits the 5-LOX pathway, which is responsible for pain signaling.
+Black Sesame Seed Oil (Sesamum indicum): A cold-pressed carrier oil that makes up roughly 60-70% of the blend. It acts as a "transporter" to ensure the other fat-soluble extracts are absorbed rapidly by the body. 
 -----new
 37% MCT oil
 28% Emu oil
